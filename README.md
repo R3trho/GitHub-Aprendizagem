@@ -1,5 +1,5 @@
 Caso esteja a ver este ficheiro, significa que está a perder por volta de 10 segundos da sua vida;
-Mas já que chegou aqui vou deixar uma receita de como fazern panquecas:
+Mas já que chegou aqui vou deixar uma receita de como fazer panquecas:
 Ingredientes:
 farinha
 150 g
